@@ -1,4 +1,4 @@
-# Beauty-under-an-Umbrella-in-the-Snow
+# Beauty Under An Umbrella in the Snow
 
 
 Suzuki Harunobu (Japanese, 1725–1770)
